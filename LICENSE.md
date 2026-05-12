@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with quantitative birdeye sniper bot | liquidity-pool-analysis + contract-verification, the #1 birdeye sniper bot. Includes liquidity-pool-analysis and
 
 
 
